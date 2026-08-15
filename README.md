@@ -1,1 +1,1 @@
-an 11 yo kid make this and trying to try his game
+an 11 yo kid made this and trying to try his game
